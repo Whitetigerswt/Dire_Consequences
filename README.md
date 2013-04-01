@@ -1,0 +1,1 @@
+Old ass mode for IV:MP that hasn't been tested in years, original thread here: http://forum.iv-multiplayer.com/index.php/topic,2838.msg27399.html
